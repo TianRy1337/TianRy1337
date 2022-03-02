@@ -1,2 +1,4 @@
-# TianRy1337
- AboutMe
+# Hi There :smile:
+- From Taiwan
+- Game Developer
+
